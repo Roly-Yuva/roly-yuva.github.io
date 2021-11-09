@@ -1,3 +1,0 @@
-# Welcome to my GitHub webpage!
---------------------------------
-I'm just sorta gonna do whatever on here...
